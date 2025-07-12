@@ -1,4 +1,4 @@
-<p data-pm-slice="1 1 []"><strong>Newera Protect</strong> helps women with bladder control problems. This supplement has a positive impact on urinary health in general.</p>
+<p data-pm-slice="1 1 []"><strong>New Era Protect</strong> helps women with bladder control problems. This supplement has a positive impact on urinary health in general.</p>
 <p>A USA facility produces Newera Protect ensuring high quality. The product contains no <strong>GMOs or gluten</strong>.</p>
 <p>Newera Protect allows you to restore balance and feel confident. Focus on your intimate health to live more .</p>
 <p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;.<img src="https://i.ibb.co/CsNYyRBt/New-Era-Protect.png" alt="" width="200" height="348" /></p>
